@@ -4,10 +4,10 @@
 
 # The will to choose the Higher Order at the root of "I", is The Work and Name of Inner I Company! [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
 
-- http://⚕🌿.hns.to/ | http://1stofficial.⚕🌿.hns.to/
-- http://🕸3.hns.to/  | http://owntheinternet.🕸3.hns.to/
-- http://the🕸.hns.to/ | http://weown.the🕸.hns.to/
-- http://hackthe🌈.🍄magic.hns.to/
+- [⚕🌿/](http://⚕🌿.hns.to/) | [1stOfficial.⚕🌿/](http://1stofficial.⚕🌿.hns.to/)
+- [🕸3/](http://🕸3.hns.to/)  | [OwnTheInternet.🕸3/](http://owntheinternet.🕸3.hns.to/)
+- [The🕸/](http://the🕸.hns.to/) | [WeOwn.The🕸/](http://weown.the🕸.hns.to/)
+- [HackThe🌈.🍄Magic/](http://hackthe🌈.🍄magic.hns.to/)
 
 
 # "I" As The Center Of Gravity Is The Seat Of Unity. 
